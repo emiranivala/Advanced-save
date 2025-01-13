@@ -28,6 +28,7 @@ https://t.me/xxxx/1001-1010
 
 https://t.me/c/xxxx/101 - 120
 ```
+any doubts ask here  https://t.me/+r2f3gdPKnI9jMDg0
 
 __note that space in between doesn't matter__"""
        
